@@ -2,7 +2,8 @@
 1 tsp baking powder
 1 pinch salt
 
-2 eggs
+
+2 medium sized eggs
 1 cup(200 gm) granulated sugar
 1/3(66 gm) cup oil
 
